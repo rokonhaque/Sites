@@ -24,22 +24,3 @@ Kiln is a paid source code host. You can try Kiln (with all the bells and whistl
 Like Sourceforge, this means your Projects need unique titles which have not been used before by another project. CodePlex gives you the option of either Git, Mercurial or Team Foundation Server (TFS) as your Version Control. All CodePlex projects are private for a maximum duration of 30 days, after which they will be removed if not made public before the expiration date. You do not need to pay to use any CodePlex feature and neither does CodePlex set a cap on the number of users contributing to a project.
 7. Beanstalk [Beanstalk](http://beanstalkapp.com/)
 Beanstalk is again a paid alternative to GitHub. It lets you try it out for 2 weeks free of cost, after which you need to pay. Its cheapest package “Bronze” costs $15 and allows up to 5 users, 3 GB storage and a maximum of 10 repositories. Subversion and Git Version Control Systems are supported by Beanstalk.
-
-Comparison Table
-
-Here is a complete comparison of all the features across all 8 (GitHub and 7 alternatives) source code hosts discussed in this article :
-Features	Github 	Bitbucket	Sourceforge	Gitlab	Kiln 	Codeplane	Code Plex	Beanstalk 	 
-Pricing*	Free	Free	Free	Free	$18/mo	$9/mo	Free	$15/mo	
-Private Repo	Paid	Unlimited, Free	Yes	Unlimited, Free	Paid	Unlimited, Paid	Unlimited, Upto 30 Days	10	
-Public Repo	Unlimited, Free	Unlimited, Free	Yes	Unlimited, Free	Paid	Unlimited, Paid	Unlimited	10	
-Storage Limit	1GB per repo	2GB	None	None	None	2GB	None	3GB	
-Users	Unlimited	5 & Unlimited if public	Collaboration not possible	Unlimited	5	Unlimited	Unlimited	5	
-VCS	Git, SVN	Git, Hg	Git, SVN, Hg	Git	Git, Hg	Git	Git, SVN, TFS, Hg	Git, SVN	
-Graphs 	Yes	No	No	Yes	No	No	No	No	
-Web Hosting	Static sites. Page generator	Static sites	Dynamic Sites, CMS	Static	Yes	No	No	No	
-Code Review	Yes	Yes	Yes	Yes	No	No	No	Yes	
-Wiki	Yes	Yes	Yes	Yes	Yes	No	Yes	No	
-Bug Tracking	Yes (Login Required)	Yes	Yes	Yes	Yes	Yes	Yes	No	
-Discussion Forum	No	No	Yes	No	No	No	Yes	No	
-
-*Free versions considered for this table. For services which have only paid v
