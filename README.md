@@ -8,7 +8,7 @@
     <img src="https://cdn2.iconfinder.com/data/icons/social-media-2102/100/social_media_network-07-128.png">
 </a>
 </p>
-## 7 Best GitHub Alternatives-Code Hosting Sites
+# 7 Best GitHub Alternatives-Code Hosting Sites
 
 1. Bitbucket -[Bitbucket](https://bitbucket.org/beingdevelop/)
 2. SourceForge -[SourceForge](https://sourceforge.net/u/beingdevelop/profile)
