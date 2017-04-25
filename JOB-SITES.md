@@ -521,3 +521,314 @@ http://www.jobfocus.com/</br>
 
 
 http://www.woodlandsonline.com/lkps/lkitem.cfm?mnid=188</br>
+
+# Forbes : Top 75 Websites For Your Career (in alphabetical order):
+
+About.com/Careers </br>
+
+Owned by The New York Times, About.com offers a wealth of free information for job seekers and those looking to advance their careers, including articles about everything from how to get along with your boss to questions not to ask an employer during an interview. About.com also links to other sites focused on specific careers like advertising or criminology, that have articles on topics like copywriting or the day in the life of a police officer. Users can also read up on the history of various fields, find a list of schools where they can study for a particular degree, or peruse an article on the most popular jobs in a given field. The site links to job listings powered by Indeed.com. Job search and employment expert Alison Doyle has been About.com's job search guide since 1998.</br>
+
+Betts Recruiting</br>
+
+This is the site for Betts Recruiting, which searches for talent for the business side of venture capital-backed startups in New York City and Silicon Valley. The focus is on sales, marketing and business development staff from the junior level through vice president.
+
+Big Interview</br>
+
+Co-founded by career coach Pamela Skillings, who used to work in human resources at Citigroup, Morgan Stanley and MasterCard International, Big Interview offers online interviewing tutorials where users pay $197 for a package of three installments. Users can prep for industry-specific interviews like pharmaceutical sales or advertising. The prep involves an on-screen interviewer asking questions like, “tell me about yourself,” and “why are you interested in this position?” The user then records her answer and watches it back onscreen. The site offers numerous tips for different stages of the interview process (sample answer, in part: “I love managing teams and solving customer problems.”)</br>
+
+Blogging4Jobs</br>
+
+Blogging4Jobs.com is an online workplace resource for managers, leaders, human resources, and recruiting professionals.  They take their audience to “uncomfortable, yet necessary,” places exposing them to the realities of the workplace without the “corporate sugar coating.”  The site was launched in 2007 with a goal of helping job seekers learn the unwritten rules of job searching.  The site has since expanded to offer insights into the world of work from a corporate and operations no-nonsense point of view.</br>
+
+Boomer Job Tips</br>
+
+Boomer Job Tops offers ideas, hints, tips and how-to's for the growing baby boomer population to help them find a job, win an interview or move their career forward. The site has hundreds of articles from experts in the career area on résumés, interviews, strategy and tactics with a “boomer focus.”</br>
+
+CareerBliss.com</br>
+
+CareerBliss is all about helping people lead happier lives by finding happiness in the workplace. The job information-hub offers free resources, like its “happiness assessment” developed by experts, a database of 6.5 million salaries, 600,000 company reviews, and 3 million job listings.  Using its large database of reviews and survey results, the site regularly releases lists like, “The Happiest For Working Dads” and “The Happiest Companies to Work For.”</br>
+
+CareerBuilder</br>
+
+Founded in 1995, CareerBuilder is one of the biggest online job boards. Its scope is international, with a presence in more than 60 markets worldwide. The site helps employers refine and target job descriptions to attract talent. Users can post résumés on the site and for a fee, get help writing résumés ($180-$300), cover letters ($50), thank-you notes ($15) and compiling references ($10). The site also offers paid online courses in different fields, like marketing and dentistry.</br>
+
+Career Change Central</br>
+
+The days when people spent decades in the same job before retiring are basically over. Career Change Central says the working public now has a new model: “One that encompasses multiple careers, a variety of job opportunities, and productive self-employment.” So whether you’re trying to get ahead in your current job, wanting to change directions completely or get a job after retirement, this is your resource. Bettie Biehn, a career human resources and not-for-profit management professional, launched the site in 2004 and provides career coaching services, résumé writing tips and cover letter advice.</br>
+
+Career Copilot</br>
+
+The people behind this career blog believe that when it comes to your career, you shouldn’t fly solo. Dan Keller, the sites owner and editor, has over a decade of recruiting experience, including retained search, contingency search and corporate recruiting. As a certified résumé writer, he also owns and manages ProResumeWriter.com. Keller provides advice on everything from interviewing to social networking to career development on the blog.</br>
+
+Career Girl Network</br>
+
+Career Girl Network provides information and resources to women, as well as the opportunity to build a network invested in their success. With hundreds of original articles each month from writers who know the world of personal branding, dressing for success, interview tactics, and other tips for success, the site combines its in-house expertise with valuable aggregated content for women in business from around the web.</br>
+
+Careers in Government</br>
+
+CareersinGovernment.com aims to match job seekers with careers in the government and the public sector. The site also includes resources like a basic salary calculator, tips for using social media to find a public sector job and a comprehensive list of professional associations for public sector employees.</br>
+</br>
+Come Recommended</br>
+
+Come Recommended is a content marketing and digital PR consultancy for organizations with products that target job seekers and/or employers. Simply put, they help companies get found, get clients, and get the recognition they deserve. The site was founded in 2008 by Forbes contributor Heather R. Huhman, a thought leader and expert in the careers space with a decade of experience as a hiring manager and public relations specialist.</br>
+
+Dice.com</br>
+
+If you’re a technology or engineering professional, Dice is the site for you. With a 21-year track record, the self-proclaimed “career hub for tech” helps employers reach hard-to-find, experienced and qualified tech and engineering professionals. Dice also reports technology news and dishes out career advice, and the site currently has a database of over 86,000 tech positions. You can subscribe to its newsletter, upload your résumé, or follow industry-specific talent communities through the site.</br>
+
+Doostang</br>
+
+Doostang calls itself an “exclusive career community that helps elite young professionals accelerate their careers.” Founded in 2005 by Stanford MBA Mareza Larizadeh, the site has formed partnerships with business schools like Wharton and Duke University's Fuqua School of Business to give their students access to listings from firms including Goldman Sachs, Google and Facebook. Doostang, which gets its name from the Latin word for “reaching for talent,” caters especially to workers in their 20s and 30s. It charges fees to users of $40 a month with discounts for longer memberships.</br>
+
+eFinancialCareers</br>
+
+eFinancialCareers is a large network of career sites for professionals working in banking and the financial markets, as well as grads who aspire to work in the industry and the firms seeking to employ them. The site strives to provide job seekers within the finance community with the best opportunities, job market news, salary information and career advice—and it’s not limited to those in the U.S. The website operates in 22 markets and five languages.</br>
+
+Enternships
+</br>
+Targeted at students and recent graduates, Enternships was founded in 2009 by Rajeeb Dey, a Oxford University graduate. The site connects students and recent graduates with internships and entry-level jobs in entrepreneurial businesses. Based in London, most of the site’s listings are in the U.K. but it also includes jobs in San Francisco and New York, in addition to Paris, Mumbai and Berlin.</br>
+Continued from page 2</br></br>
+
+Escape The City</br>
+
+Two former consultants in Ernst & Young’s London office, Rob Symington and Dom Jackman, founded Escape the City in 2009. The site aims to help banking, law and finance workers switch to more fulfilling careers. Its blog includes profiles of people who have made career changes. More than 82,000 members have signed up to receive a weekly email that includes job listings at startups, charities, and social enterprises.</br>
+
+Evil HR Lady</br>
+
+On the Evil HR Lady blog, Suzanne Lucas dishes out career advice and commentary on the working world. She takes readers' questions and responds with snarky, well-thought-out answers explaining what’s going on inside the heads of managers and HR personnel. With six years of archives, Lucas currently has over 22,000 subscribers to her RSS feed.</br>
+
+Experience.com</br>
+
+Experience.com specializes in entry-level jobs and internships for students and recent college grads. It includes a job board and articles of interest to those starting out in the job market, like entry-level job interviewing, résumé and cover letter tips, plus articles aimed at college students like what to do about a horrible freshman roommate and how to save money on an off-campus apartment.</br>
+
+Flex Jobs
+</br>
+Aimed at job seekers who want part-time, flextime, and freelance jobs or positions where they can telecommute, FlexJobs is a subscription service that charges $15 a month or $50 a year for access to its listings. The site claims to screen online job listings, including industry blogs, employer sites and job boards and only offer “legitimate” jobs. The site has 50 career categories and jobs from entry-level to executive. FexJobs says it will refund payments to dissatisfied customers.</br>
+
+Fresh Transition</br>
+
+FreshTransition offers an app for career changers. The job search and career management app is free for job seekers; it generates revenues by charging fees to colleges and universities, government agencies and outplacement providers who want to customize the app, like integrating it with a university’s job board or giving a career center the ability to track and monitor its clients’ job search activity. The app allows users to keep track of the jobs they are targeting, the cover letters they have sent and the goals they have laid out. FreshTransition also has a blog with articles on topics like the importance of email signatures and how to interact with recruiters, and includes information on self-assessment, branding and networking.</br>
+
+Get Hired</br>
+
+Mainly geared toward employers, Palo Alto, Calif.-based GetHired gives employers a way to ask pre-screening questions using video and audio, which allows them to track and pre-screen candidates. For job seekers, the service is free and there is a simple search function that allows them to hunt for key words and locations.</br>
+
+Give A Grad A Go
+</br>
+Give A Grad A Go strives to fill the void between university career services, online job boards and recruitment agencies. Once candidates register on the site, they can apply for open positions, stay up-to-date on the progress of their application through their online profiles, or call Give A Grad A Go to chat about roles the site might have for them. The website also helps guide candidates who don't yet know what they’d be good at or what they actually want to do. Clients can post job listings for free—but they are charged if and when they hire one of the site’s registered candidates.</br>
+
+Give To Get Jobs</br>
+
+Give To Get Jobs is a job board and information hub for jobs that use a sustainable business model to solve social and/or environmental issues, mainly social enterprise and corporate social responsibility.  As a social enterprise, the Give To Get Jobs team uses the proceeds to fund job creation programs.  They currently donate through a non-profit--but are in the process of creating their own mobile job training program.
+</br>
+Continued from page 3</br></br>
+
+Glassdoor</br>
+
+Glassdoor is a free jobs and career community that offers an inside look at jobs and companies. Employees and job seekers can anonymously review their companies, interview experiences, CEOs, salaries, and more. Glassdoor recently introduced its Inside Connections feature, which allows people to see any connections they might have to a specific employer through their friends, or friends-of-friends, on Facebook.</br>
+
+Hired My Way</br>
+
+Job seekers post their qualifications for free on HiredMyWay, which professes to have superior technology that matches applicants to hiring managers. Companies also post for free and only pay when they make a hire. Founded in 2010, the site’s investors include Earvin “Magic” Johnson and billionaire Daniel Gilbert, founder of Quicken Loans.
+</br>
+HooJobs
+</br>
+HooJobs is a specialized job board for public relations, social media and communications positions. The founders are the managing partners of Paradigm Staffing, a PR and marketing staffing firm. Hiring firms pay $300 to list jobs for 30 days, and an additional $50 to continue the listing for an additional 30 days.
+</br>
+Indeed</br>
+</br>
+Indeed.com is a Google-like search engine for jobs and one of the most efficient sites for surveying job listings, since it aggregates information from job boards, news sites and company listings. An advanced search function enables users to drill down on a location, keywords and salary range. Indeed says it has 70 million unique visitors and 1.5 billion job searches a month. It’s available in 50 countries and 26 languages.</br>
+
+Inside Jobs</br>
+
+Inside Jobs says its goal is to help users figure out what careers they want to pursue and direct them to the schools where they can best train for that career. The Career Finder feature offers descriptions of more than 15,000 careers, from chiropractic neurologist to real estate lawyer to nuclear technician. Each career description includes salary range, a list of personality traits and links to schools that offer training for the job. Searches are free for job seekers. Inside Jobs makes its money by charging some of the schools that list on the site.
+</br>
+Internships.com</br>
+
+Internships.com bills itself as the world’s largest internship marketplace where employers can post internships and get access to its internship database for free. At last count the site had nearly 60,000 postings at 25,000 companies in 8,800 cities across the U.S. The site includes paid and unpaid, full and part-time internships. One useful feature: a “Who?” button that includes a Facebook sign-in and shows which of an applicant’s Facebook friends are connected to the hiring company.
+</br>
+InternQube
+</br>
+InternQube is a free website which aims to help students develop professional skills for the workplace. The articles and videos featured on the site come from a variety of sources that are virtually open to the public and freely available on the web. The site is a companion to a field guide by Michael True, the president of INTRUEITION, the parent company of InternQube.
+</br>
+InternMatch</br>
+
+Aimed at college and graduate students, InternMatch, founded in 2009, connects applicants with internships. The listings are longer and more descriptive than on most other sites and include a Q&A section. Users can register and pose questions to companies. The site includes paid and unpaid internships in numerous categories including engineering, non-profit, real estate and sports.
+</br>
+Intern Queen</br>
+
+InternQueen.com is a site that helps students find and apply for internships while also educating them on how to make the most of their experiences. The website says it reaches over 80,000 different students, parents, and employers each month. Lauren Berger, an author, speaker and spokesperson, founded the site in 2009.</br>
+
+Intern Sushi</br>
+
+Intern Sushi aims to connect the brightest and most talented interns with leading companies in the “hardest-to-break-into industries” on its multimedia platform. The site claims that is has reinvented the internship application and hiring process by allowing applicants to “vividly and visually” showcase their talent, passion and drive. Intern Sushi features an application dashboard, which includes an array of organizational and time-saving features, for interns and companies alike.
+</br>
+Continued from page 4</br>
+
+Interviewing.com</br>
+
+A new site, founded late last year, Interviewing.com offers advice and tips on interviewing techniques. Its revenues come through advertising and it has a job board powered by Indeed.com. Articles include how to answer the toughest interview questions, answering what do you know about the company, and the “what is your dream job” interview question.</br>
+
+I Want Her Job</br>
+
+I Want Her Job is the website for independent-thinking women everywhere who are changing the face of business, and loving their jobs while they're at it. The mission of the self-billed “anti-mean girls” site is to positively inspire women to not compete with one another, but instead to focus on becoming the best versions of themselves while lifting others up -- and changing the male to female workforce ratio along the way.</br>
+
+Jibberjobber</br>
+
+JibberJobber was originally designed to help people organize and track their job search—but has since evolved into a “personal relationship manager” that allows you to manage your job search and optimize your network relationships for the duration of your career. The site was designed by Jason Alba during his first real job search in early 2006. Membership to the website is free, but users can pay to upgrade their account to Silver ($60/year) or Premium ($99/year) status—which offers additional features.
+</br>
+Jobbook</br>
+
+Jobbook is a free job search site that matches both recent college graduates and established professionals from the U.S. and Canada with employment opportunities. Job seekers pick from a list of 59 different fields, including health care, gaming, education and retail and the site matches them with listings. Employers can also list jobs for free.</br>
+
+JobJenny</br>
+
+Jonny Foss, also known as “JobJenny,” started her blog to help and motivate people “in this enormously crappy job market,” she says. Whether you're unemployed, secretly dreaming of telling your employer to stuff it, or plotting out a future as your own boss, Jenny believes this blog is for you. She’s posted blog entries on why "follow your passion" is flawed career advice, and the art of making your résumé robot and human friendly.</br>
+
+Journalism Jobs</br>
+
+JournalismJobs.com was founded in 1998 by Dan Rohn, a former copy editor and business writer with The Washington Post, editor with America Online, and Washington, D.C.-based stringer for Money Magazine. This is one of the largest and most-visited resource for journalism and PR jobs, and receives between 2.5 to 3 million page views a month. Aspiring or job seeking journalists can search for positions in all areas of the field, including wire services, magazines, radio and TV. Major news organizations like Time Inc., The New York Times, Bloomberg, Reuters and Forbes, among many others, have been connected with candidate through JournalismJobs.com.</br>
+
+Just Jobs Academy</br>
+
+The mission of this site is to teach professionals or job seekers what they don’t learn in school: The skills and attitudes that can set you apart from your co-workers and competitors. Just Jobs Academy offers career advice, a job search feature, and a scholarship program.  Three times annually the site’s scholarship committee awards an eligible student with a $2,000 scholarship.
+</br>
+KindredHQ
+</br>
+KindredHQ is a career site for freelancers, independent workers and startup entrepreneurs trying to make it in the world. It’s geared toward those who decided to opt out of the traditional 9 to 5 office job and go it alone—and the site’s team understands that it can sometimes be very tough. That’s why they created Kindred HQ, an online community where these professionals can discuss the things they’re struggling with, share success stories, and make serious connections that can help them succeed in their careers.
+</br>
+Life After College
+</br>
+Former Google employee Jenny Blake now works as a life/career coach. This site includes a career blog written by Blake, with articles like 8 Ways to Practice and Improve Your Public Speaking and Promotions: 10 Tips to Moving Up the Corporate Ladder.
+</br>
+Lindsey Pollak
+</br>
+Lindsey Pollak, a global spokesperson for LinkedIn and the author of Getting from College to Career: Your Essential Guide to Succeeding in the Real World, runs this engaging and informative site which offers blog posts, videos, and event listings to help young professionals succeed in the ever-changing world of work. On her blog, the Yale grad covers a variety of topics related to LinkedIn, including how to network with VIPs on LinkedIn and how to showcase your personal brand on the popular networking site.
+</br>
+LinkedIn
+</br>
+Though we’re not rating our list of career sites, if we were, LinkedIn would come in as the indisputable No. 1. The largest professional social networking site, it has more than 175 million members in 200-some countries worldwide. People are signing up at approximately two new members a second. It is free to become a member and post a summary of your career and work history. Recruiters and hiring managers use nine-year-old LinkedIn more than any other website to connect with job candidates.</br>
+
+LinkUp</br>
+
+A job search aggregator, LinkUp only includes jobs listed on company websites. The site indexes more than 22,000 company career pages and updates listings nightly. LinkUp offers an app for Androids, iPhones or iPads. Similar to Indeed and SimplyHired, Linkup distinguishes itself because it only includes jobs listed on company sites, rather than other job boards or news listings. The site is a division of JobDig and based in Eden Prairie, Minn.</br>
+
+ManpowerGroup</br>
+
+At more than 60 years old, ManpowerGroup is one of the oldest and largest staffing firms in the country, handling both part-time and full-time work. Based in Milwaukee, Wis., the company has 3,900 offices in 80 countries. Job seekers can upload their résumés and receive job alerts via email.</br>
+
+Media Bistro</br>
+
+Mediabistro.com is a career site for people working in media, from book publishing to advertising to public relations and marketing. The site offers extensive job listings in media-related fields and paid courses in everything from children’s book publishing (12 sessions for $610) to food writing (6 sessions, $425). It also has articles on media career topics including what journalists should know before switching to PR and how to network in any situation, though it requires users to subscribe ($55 a year) to read the entire pieces. Users must sign in to view job listings; that service is free. Users can also sign up to get a free daily newsletter tracking media news and staff changes.</br>
+
+Continued from page 5</br>
+
+Monster</br>
+
+One of the oldest online job boards, Monster.com was created in 1996 when one of the first job search sites, The Monster Board, merged with Online Career Center. It now includes listings in 50 countries in the Americas, Europe and Asia and sells services to recruiters and companies looking to hire. Job seekers can post their résumés and comb listings for free. The site includes loads of free content on everything from résumé and cover letter writing to interviewing tips to sample resignation letters.</br>
+
+My Lifestyle Career</br>
+
+Thinking about working on a part-time basis during your retirement? Career coach Nancy Collamer, author of Second-Act Careers: 50+ Ways to Profit From Your Passions During Semi-Retirement offers advice on career reinvention, lifestyle-friendly income ideas and the best resources for boomers eager to leave the 9 to 5 workplace behind.</br>
+
+No Joe Schmo</br>
+
+No Joe Schmo delves behind the scenes of jobs you wish you had (like the roller coaster engineer), jobs that make you squirm (the alligator wrestler), and jobs you didn't know existed (the dirty car window artist). The men and women who comprise the fabric of No Joe Schmo hail from local communities to mass markets. And while you probably wouldn't recognize them on TV, their stories and career paths are just as inspirational, insightful, and worthwhile.</br>
+
+oDesk</br>
+
+An online employment agency that connects remote workers with employers, oDesk has been used by small and medium-sized businesses, and also large companies including Google, Microsoft, AOL and HP to hire employees like web developers, accountants, administrative assistants, writers and marketing managers who work in distant locations. One way oDesk tracks employees: an automated program takes six snapshots of the remote employee’s work screen every hour. ODesk sources workers internationally, with the majority coming from the Philippines, though the U.S. supplies the third-greatest number of workers, after India.
+</br>
+One Day One Job
+</br>
+Launched in 2007 by 2006 Cornell graduate Willy Franzen, One Day One Job aims to help college students and recent graduates who aren’t sure what career path to take. Users sign up and the site sends them one email each day, either about a job listing or an internship opportunity. The emails, all written by Franzen, include a company description, a list with links to jobs at the company and links to research the company further. The site is free for job seekers. Franzen has sent out an email on a new company making entry-level hires every day since starting the site; its database now includes 1,700 companies.</br>
+
+Payscale</br>
+
+Founded in 2002 and based in Seattle, Payscale offers free salary data to users in exchange for information about their jobs and compensation. Its data comes from some 35 million user-submitted profiles and stats on more than 4 million employers. Users can do a quick search on a company and job title, or fill out a questionnaire with information like years of experience, alma mater and current pay, and get an estimate of what someone of their age and experience should expect to earn in their city. The site also includes a blog featuring interviews with real people talking about their work experience.</br>
+
+Personal Branding Blog</br>
+
+Founded in 2007 by Dan Schawbel, managing partner at Millennial Branding, a Boston company that does research and consulting on Generation Y, Personal Branding Blog offers information about how to create your personal brand. The blog includes video podcasts, interviews with branding specialists, research reports, articles, games. Schawbel is also author of the book Me 2.0 and a Forbes.com contributor.
+</br>
+Résumé Writers Ink.
+</br>
+ResumeWritersInk.com targets C-suite executives, professionals, and trade professionals seeking customized branding integrated with their career accomplishments. The web site offers a visual story and content-loaded bandwidth of information helping its clients discover career marketing services including coaching, résumé writing, profile assessments, and hot blog topics.</br>
+
+Salary.com</br>
+
+Founded in 1999, Salary.com is the oldest website aside from the federal government to offer online information about what jobs pay. The Waltham, Mass. company gets its data from vendors who survey companies’ human resources staff. Its free “salary wizard” gives a quick snapshot of the salary for a given job title in a particular city, or users can fill out a questionnaire with more specifics like education level and years of experience, and get a more focused result. For $30-$80, users can answer an extensive questionnaire and get a personal report that takes into account details like advanced degrees and numbers of employees they will be expected to supervise. The personal report includes information on potential benefits and bonuses, and sample arguments to make in a salary negotiation. The site also includes other information like job listings and a cost of living and benefits calculators.
+</br>
+Simply Hired</br></br>
+
+Like Indeed.com, SimplyHired is a Google-like search engine for jobs and a quick way to survey a massive number of job listings. The site, based in Sunnyvale, Calif., aggregates information from job boards, news sites and company listings. At last count, it had 30 million unique visitors a month. One advantage of SimplyHired over Indeed: Job listings display a user’s LinkedIn connections to each job.</br>
+
+Sixty in Sixty</br>
+
+Michael Warshafsky, a Toronto college student, spent the summer of 2011, just after he finished high school and headed off to college, shadowing people like a rabbi and a venture capitalist to find out what each one did all day, and then blogged about it. He spent 60 days on the project and covered 60 different professionals; hence the title of the blog. His descriptions are detailed and he includes a summary at the top of each entry with “a typical day,” “top 3 perks” and “job culture.” He also summarizes job requirements, skills needed and a description of the general outlook for the field.</br>
+
+Social Savvy Sarah</br>
+
+Social Savvy Sarah is a personal branding and social media consultancy founded by Dr. Sarah David. She works with a team of seven business partners, graphic designers, and savvy social media strategist. From her experiences, David recognized a need for colleges and universities, small business owners, entrepreneurs and professionals to utilize the power of social media to help grow their following and promote their brands, image, and online presence. David charges a fee for her services, but you can read her info-packed blog for free.</br>
+
+Continued from page 6</br>
+
+SpringTern</br>
+
+This Toronto startup links college students and recent graduates with small businesses and non-profits looking for people to volunteer their time on short-term projects. Founded in 2012, it offers a way for job seekers to get unpaid work experience. Applicants sign up for free and at this point, businesses also pay nothing to list on the site.</br>
+
+StartUpHire</br>
+
+StartUpHire is a job search engine that connects exceptional talent with innovative high-growth companies. The site provides the definitive listing of startup career opportunities, including thousands of jobs at venture capital backed companies nationwide. The site not only offers tools to career professionals, but also to employers and venture investors.</br>
+
+Stiletto Woman</br>
+
+Stiletto Woman is a valuable resource for women in business. As a lifestyle company for modern working business women seeking business, work, and life utopia, Stiletto Woman has become the online destination for women transitioning into entrepreneurship, aiming for work-life balance, and desiring to sustain new and existing businesses.
+</br>
+StreetID</br>
+
+Started in late 2011 by former Wall Street headhunter Jesse Marrus, StreetID.com is not a job board. Rather, it is a place for job seekers to post their qualifications and invite hedge funds, investment banks, and private equity outfits looking to hire candidates with particular qualifications, to seek them out. It takes only about 10 minutes to fill out StreetID’s form. The site makes its money by charging companies to use its site ($15,000 a year or $1,500 a month).</br>
+
+The Daily Muse</br>
+
+An online career and lifestyle publication targeted at women, The Daily Muse is a Forbes.com contributor. Articles include descriptions of what it’s like to work at particular companies, like Bread, a San Francisco social media advertising startup, and more general career advice, including why it’s OK to follow a career path that takes you in many different directions.
+</br>
+TheLadders</br>
+
+Founded as a job-search site for professionals who make $100,000 and up, last year TheLadders expanded to those making $40,000-$250,000. With free basic service, users can see job titles and have access to the site’s career tools and resources. With Premium Membership ($25 per month or $149 per year), users have unlimited access to thousands of recruiters and jobs. The site also has a career blog and weekly newsletters, and offers a package of résumé-writing and cover letter help for $400.</br>
+
+The New York Times Corner Office</br>
+
+The New York Times’ “Corner Office” project is spearheaded by Adam Bryant. The feature, which offers highlights from conversations about leadership and management, can be found in the Business section every Sunday.</br>
+
+The Office Blend</br>
+
+Dr. Marla Gottschalk’s, an industrial and organizational psychologist who specializes in workplace success strategies and organizational change, writes The Office Blend blog. She discusses everything from how not to hate job interviews, to employee engagement advice, to the evolution of the workplace.
+</br>
+The Work At Home Woman</br>
+
+Founded three years ago by Austin, Texas mother and registered nurse Holly Reisem Hanna, Workathomewoman.com has a job board that includes dozens of positions that can be filled remotely, from call agents and virtual assistants to direct sales to transcribers. The site also has pieces on how to launch home-based careers like event planning and blogging.</br>
+
+Tweet My Jobs</br>
+
+This service, free for job seekers, allows applicants to sign up and get alerts either by email, text or through Twitter, when jobs have been posted in their field of interest, or when their Facebook and LinkedIn connections have links to job postings.</br>
+
+USAJobs</br>
+
+USAJobs is the government’s official site for Federal jobs and employment information. It provides public notice of job opportunities—and offers a platform to support online recruitment and job applications. Information about eligibility, compensation and benefits for Federal workers, including vacation time, commuter subsidies, insurance, and child care, is also available on the site.</br>
+
+Vault</br>
+
+Online job board Vault features employer profiles and rankings on a variety of professions, including law, banking, tech, accounting and consulting firms. Rankings break down categories like the best law firms to work for, the best for diversity, the best in each practice area. The site also includes sample résumés and cover letters. Users can upload their résumés and sign up for job alerts. The site includes career advice and Vault also sells books like a $30 finance interviews practice guide.</br>
+
+The Wall Street Journal Careers page</br>
+
+This site is packed with free content aimed at job seekers and those looking to advance their careers. It also includes a link to the Wall Street Journal’s financial jobs website, FINS, and a link to the “At Work” blog that includes yet more careers content including articles on subjects like job security and college co-op work programs, and links to articles in other publications about work and careers.</br>
+
+Water Cooler Wisdom</br>
+
+Water Cooler Wisdom is one of the original blogs in the career and workplace space, launching initially in 2005.  The content focuses on helping people find and succeed in meaningful work, and assisting companies and managers in retaining their top talent.  WCW also investigates trends around the future of careers and work so that readers can be better prepared for what's coming down the pike.  The blog is written by Alexandra Levit, a bestselling career author, speaker, and adviser to the Fortune 500 and the Obama administration.</br>
+
+YouTern</br>
+
+Youtern is a matching site that hooks ups would-be interns with job listings. Applicants fill out short profiles and the site matches them with open listings. The site also includes a blog with articles on subjects like résumé-writing, networking and how best to use LinkedIn.</br>
