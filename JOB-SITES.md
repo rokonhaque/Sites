@@ -210,3 +210,311 @@ Every job seeker needs tools in their job search toolbox. Whether it’s using a
 48) Vizualize – This tool allows you to create a visual or infographic version of your resume — great for standing out when applying to creative and innovative roles.</br>
 49) JobCompass – JobCompass apps are available through the Apple App Store, Google Play Market, Nook App Store, and Amazon App Store and allow you to search for available jobs within a five-mile radius of your home up to 100 miles from your location. With a database of more than two million listings, there’s sure to be a job for you.</br>
 50) Apploi – The Apploi app is available in the iTunes store and via Google Play. More than an app, Apploi is a community that seeks to connect job seekers with the employers that are right for them. It offers job searches, advice, training, and tips while allowing employers to reach out to you on your mobile device.</br>
+
+# 10 Best Employment Websites for Recruiters and Job Seeker Professionals All over the World:</br>
+
+Websites, like Indeed, Dice, SimplyHired, Monster, etc are Giant Job portals that are popular all over the universe simply because of their excellent performances in the career and employment industry.</br>
+
+They have got trust from several millions of employees and employers from their many years of unbeatable online hiring and recruitment services. Indeed.com, SimplyHired, and few others also provide free job advertising while others, like Monster.com avail the job posting facility only to its paid members. </br>
+
+1. Indeed.com ( Indeed- post jobs for free online )</br>
+Since its inception in 2004, Indeed.com has been linking employers to the most suitable job seekers from all over the world. This job search engine is available in a myriad of languages, ensuring that no one is left out in the search for talents and jobs.</br>
+
+Post employment ads free at Indeed.com :  Posting a job at Indeed.com requires you to have an account, after which you can post any job of your choice and get high quality applicants directly to your inbox. </br>
+The Indeed Apply app adds color to the already good package, allowing iPhone, iPad and Android device users to apply for the jobs directly to the employer. </br>
+
+Employers can also look for resumes at indeed.com, since there are over 2 million new job seekers and resumes every month.</br>
+
+
+2. Monster ( Search IT software Sales Jobs at Monster.com- a premium site for employers )v
+
+Monster.com is one of the most visited employment websites in the world. It owned and operated by Monster Worldwide, Inc and it is headquartered in New York, USA. </br>
+
+
+It is a multilingual job search engine that provides a link between employers and employees. An employer looking for the best talent for a certain job just needs to enter the job title and the location then monster.com will provide the best job ad solution, which is posted on both Monster and partner sites.</br>
+
+In 2008, monster.com featured over one million job postings and about 63 million job hunters per month, according to comScore. This underscores the worldwide recognition of this site. </br>
+
+(Monster is a premium job site for employers and they charge for posting jobs, but search jobs is free</br>
+
+3. Career Builder ( CareerBuilder- one of the best Job portal for employers and Job seekers )</br>
+
+Passion in posting job ads and browsing resumes has its place at http://www.careerbuilderforemployers.com/. This is the home of high-end recruiting tools, candidate sourcing, workforce data and Human resource software that provides the solutions to employers who would like to reach the next level in their enterprises. </br>
+
+CareerBuilder's widespread growth has seen many job providers hire the most talented job seekers in various fields, in line with the fact that appropriate staffing is a pillar of growth and development in any business.</br>
+
+4. JobsOnline ( Search any kind of employment opportunities at Jobsonline.com )</br>
+If you have a job and you are looking for a suitable employee, Jobsonline.com is the recruitment website to work with. </br>
+
+Registering with this website opens the doors to a network of the most qualified candidates for whichever type of job, as millions of job seekers rely on this website for the latest employment opportunities. </br>
+
+Moreover, with jobsonline.com comes easy set up and track of results, increased flexibility and enhanced traffic to the employer’s website.</br>
+
+5. LinkedIn ( LinkedIn- The Biggest Networks of professionals for employment Opportunities )</br>
+LinkedIn is one of the top social networking and media sites that connects people to others who have the same or similar profession, or who are pursuing the same career. </br>
+
+Companies and independent employers have the opportunity to link with career people in their fields, making it easy to hire the job seeker of choice for a certain job. </br>
+
+There are millions of profiles of registered LinkedIn users, and that is why this professional social network it is one of the fastest growing organizations.</br>
+
+(Connecting with potential employees is free at LinkedIn, but they charge premium fees for posting jobs )</br>
+
+6 Craigslist ( Craigslist.org- World's Undisputed No#1 Free Classifieds Website for Jobs )</br>
+
+Craigslist is a website for classified advertisements and forums that has various sections such as jobs, items wanted and personals among others. Craigslist is a great free job posting site for employers around the globe.</br>
+
+Due to its popularity, many job providers post their jobs on Craigslist for the job seekers to browse and apply accordingly. </br>
+
+The availability of the website in English, French, Spanish, German, Italian, Dutch and Portuguese is an extra feather to the hat. (Learn : how to advertise effectively at Craigslist )</br>
+
+(It is free to post online jobs at Craigslist. You can submit unlimited job listings at Craigslist website. There are no charges or fees.)</br>
+7. Linkup ( Linkup.com- Job Search Engine for Employers . PPC based employment ads posting )</br>
+
+Linkup aggregates job listings from employer websites, thereby serving as a job search engine that incorporates an employer’s applicant tacking system. This way, this site keeps fraudulent job listings at bay. </br>
+
+Employers pay a monthly subscription fee on top of the Pay Per Click payments so that their job postings can remain on the site.</br>
+
+8. SimplyHired ( SimplyHired- One of the Top Job portals in the World. Post free and paid jobs )</br>
+
+For all types of job postings, Simply Hired is the place to be. Posting a job on this site takes less than 5 minutes, after which the job is available to all serious job seekers.</br>
+
+
+Jobs can be posted on both the basic and premium platforms on which you can advertise your listings with partner sites and niche-specific sites, manage your postings and job applications and decide the best period for a specific job post.</br>
+
+9. Dice ( Dice.com- a World Renowned premium Job Site for technology Professionals )</br>
+
+Dice.com is a niche-specific job search engine that allows employers to post technology-related jobs for job seekers various parts of the world. </br>
+
+At Dice.com website, you can get a variety of resumes depending on the posting package that you choose, and you can easily bolster your chances of growth in the technological sector by hiring the right personnel.</br>
+
+10 Careerone.com ( Careerone.com- Best Job Portal for Australian Jobs )</br>
+
+Careerone.com is an Australian job search engine that matches job descriptions with the most suitable qualifications. It allows employers to post full time jobs, part time jobs and casual jobs depending on the job posting package chosen by the employer.</br>
+
+The cost of posting a job does not break the wallet and rightly so.</br>
+
+# List of 60 Websites for Jobs and Careers and for Employers and Employees : 
+
+<b>For Consultant and Employers:<b> If you are a consultant or employer who wants to recruit candidates in bulk, then it would be very fruitful to use free job advertising sites. Though, using premium services from biggies is desirable when the free job posting doesn't appear sufficient.</b>
+
+The below list contains best websites for searching careers and posting employment ads for worldwide users.</br>
+
+<b>For Candidates and Job seeker professionals:</b> Visit the below mentioned job boards to search latest job openings in your industry. You can submit your resume to most of the websites listed here.</br>
+
+# You can also subscribe these job portals for the latest job alerts for your profile.</br>
+
+http://www.cybercoders.com/employer/ (no cost unless you hire a candidate from them)</br>
+http://jobs.vault.com/JobSeeker/Jobs.aspx</br>
+# BPO Job Websites in India</br>
+http://www.techcareers.com/</br>
+http://www.jobadsusa.com/employer.htm</br>
+https://www.kforce.com/ </br>
+http://www.jobfoxter.com/postjob.aspx</br>
+http://www.techcareers.com/</br>
+http://www.thefreejobs.com/index.php</br>
+http://www.hirefire.org/</br>
+http://naukri.com</br>
+# Inity website to post free jobs in India</br>
+http://www.employmentguide.com/</br>
+http://www.jobster.com/</br>
+http://goodrecruit.com/</br>
+http://www.theladders.com/</br>
+http://www.nationjob.com/</br>
+http://www.job-ad-venture.com/</br>
+http://www.thejobspider.com/</br>
+# 100 Job Board Websites in South Africa for Recruiters</br>
+
+http://www.luckydogjobs.com/</br>
+http://www.jobbankinfo.org/</br>
+http://www.jobvertise.com/</br>
+http://staffinglinks.com/crcpost.htm</br>
+# 25 Best Job Posting sites in Canada</br>
+http://www.personneldesk.com/</br>
+http://www.jobisland.com/</br>
+http://www.jobsworkcareers.com/</br>
+http://www.creativecentral.com/centralHR/EmpHome.asp</br>
+http://www.jobs4jobs.com/</br>
+http://www.jobscity.net/</br>
+# 100 Best Job sites for New Zealand</br>
+http://www.teleportjobs.com/</br>
+http://employment-inc.com/jobs</br></br>
+http://www.placementindia.com/</br>
+http://www.jobkabob.com/</br>
+# Job Posting free Classifieds sites for Los Angeles</br>
+http://hiring.gadball.com/Login.aspx</br>
+http://www.iitjobs.com/</br>
+http://www.careerjet.com/</br>
+http://www.job-search-engine.com/employers</br>
+http://www.workgiantweb.com/</br>
+# Top 10 Social media sites where you can post hiring </br>
+http://www.helpwanted.com/</br>
+http://www.careerpark.com/</br>
+http://www.jobsgala.com/</br>
+http://allretailjobs.com</br>
+http://shine.com</br>
+# Post free job classifieds in UK</br>
+http://beautyjobshop.com</br>
+http://www.theitjobboard.co.uk/</br>
+http://beyond.com</br>
+# 100 Best German Classifieds that accept Job Posting</br>
+http://collegerecruiter.com</br>
+http://www.getjobs.com.au/</br>
+http://www.usajobs.org/</br>
+# Top 10 Australian Classifieds where you can post jobs</br>
+http://www.thejobbox.com/</br>
+http://www.bestjobsusa.com/</br>
+http://www.telecommuting-techies.com/</br>
+# Job Posting Online Boards in Ireland</br>
+http://www.devbistro.com/employers.jsp#post_job</br>
+http://www.hwg.org/lists/hwg-jobs</br>
+http://www.agaveblue.net/</br></br>
+http://jobs.metafilter.com/</br>
+http://www.acareerinsales.com/cart.aspx</br>
+# Visit Craigslist for Job Classifieds</br>
+# Post job classifieds in Canada</br>
+http://www.getjob.us/</br>
+http://www.postmeup.com/postcity.asp</br>
+http://www.webcosmo.com/</br>
+http://www.glassdoor.com/</br>
+# Post free Jobs without registering an account</br>
+http://visualcv.com/</br>
+http://ecademy.com/</br>
+http://myworkster.com/</br>
+Indian Job Classifieds</br>
+Global Employment Job Ads</br>
+Adsnity Jobs Classifieds</br>
+
+# More Free Employment websites for Jobs-</br>
+
+1. https://www.recruiter.com/i/5-free-job-posting-sites/</br>
+recruiter.com</br>
+
+2. http://www.reviews.com/job-sites/free/reviews.com</br>
+
+3. https://www.ziprecruiter.com/ziprecruiter.com</br>
+
+4. http://www.jobspider.com/jobspider.com</br>
+
+5. Wikipedia List of employment websites</br>
+
+6. best job boards</br>
+
+7. smartrecruiters- A Job board for recruiters</br>
+
+ 8. careers.org -Popular job Board in US</br>
+
+9. http://www.jobvertise.com/</br>
+
+10. http://www.allstarjobs.com/</br>
+
+11. http://www.jobs.net/</br>
+
+12. http://www.careercast.com/employer/post-job</br>
+
+13. http://www.forbes.com/sites/susanadams/2012/09/14/the-10-best-websites-for-your-career/</br>
+
+14. http://www.iapplicants.com/job-boards/post-ads-free.htm</br>
+
+15. http://jobcrank.com/</br>
+
+ 16. http://biginterview.com/blog/2014/10/best-job-search-sites.html</br>
+  
+17. http://www.jobsinnh.com/</br>
+
+  
+# Job boards for Australian Employers
+
+
+
+http://www.honolulujobboard.com/</br>
+ 
+http://www.employmentcrossing.com/employers/lcjobpostingmain.php</br>
+   
+http://www.texasonlinejobs.com/</br>
+
+http://libwww.freelibrary.org/jobseekers/jobsearch.cfm</br>
+freelibrary.org</br>
+
+http://www.ncda.org/aws/NCDA/pt/sp/resources</br>
+ncda.org</br>
+
+  
+http://www.nextavenue.org/7-top-websites-nonprofit-jobs/</br>
+
+
+# glassdoor.com- social media site for jobs</br>
+
+
+http://legalcareers.about.com/od/jobsearch/a/legaljobs.htm</br>
+
+
+http://www.businessdictionary.com/article/810/the-best-places-to-post-job-openings/</br>
+
+
+http://www.huffingtonpost.com/2013/03/30/non-profit-jobs-how-to-get-a-job_n_2979386.html</br>
+
+
+http://www.fresnolibrary.org/ref/emp.html</br>
+
+
+http://www.chicagojobresource.com/</br>
+
+
+http://www.wnyjobs.com/articledetail.aspx?id=90</br>
+
+http://www.weddles.com/iaews/</br>
+
+http://www.realsimple.com/work-life/life-strategies/job-career/job-search-websites</br>
+  
+http://www.refdesk.com/jobsearch.html</br>
+
+
+http://www.phdproject.org/resources/academic-job-sites</br>
+
+
+http://www.employment911.com/</br>
+
+
+https://www.linkedin.com/grp/post/4422932-5986242939939016707?trk=groups-post-b-title</br>
+linkedin.com</br>
+
+
+http://www.bellinghamlibrary.org/home/general-employment-websites/</br>
+
+
+https://www.linnbenton.edu/current-students/work/career-services/career-and-employment-services/free-job-search-links</br>
+
+
+http://www.nypl.org/employment-websites</br>
+
+
+http://www.careeroverview.com/job-search.html
+</br>
+
+http://www.internetworldstats.com/articles/art002.htm</br>
+
+
+http://www.seniorjobbank.org/</br>
+ 
+http://h2h.jobs/</br>
+
+
+http://www.job-hunt.org/jobsearchusing.shtml</br>
+
+
+http://www.prattlibrary.org/jobtoolkit/</br>
+
+
+http://www.allstarjobs.ca/</br>
+
+
+http://www.makeuseof.com/tag/top-10-most-effective-job-search-websites/</br>
+
+
+http://lifehacker.com/5114814/five-best-online-job-search-sites</br>
+
+
+http://www.jobfocus.com/</br>
+
+
+http://www.woodlandsonline.com/lkps/lkitem.cfm?mnid=188</br>
